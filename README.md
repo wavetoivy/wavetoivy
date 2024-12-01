@@ -1,1 +1,1 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=wavetoivy)
+![🦢](https://komarev.com/ghpvc/?username=wavetoivy)
