@@ -3,7 +3,7 @@
 $${\color{white} \space " \space i \space feel \space everything. \space "}$$
  
  <p align="center"> 
- <img src="https://media.discordapp.net/attachments/1013637206952382504/1355168582769573908/IMG_0601.png?ex=67e7f297&is=67e6a117&hm=82adadad68b217d236aad50ffc877aeecd86f0b138c7bd24abf94c1971de5f24&=&format=webp&quality=lossless&width=688&height=371" <p/>
+<img src="https://scontent.fmnl4-4.fna.fbcdn.net/v/t1.15752-9/487081260_668634332325923_1747438773296705596_n.jpg?_nc_cat=100&ccb=1-7&_nc_sid=9f807c&_nc_ohc=nJswCoAJiygQ7kNvgGQaFp1&_nc_oc=Adn7z6i89uNkFU3QZrgQ_YmPybSLxjI-fcOmXoUWF64CVtGM_9Lt8CwTzbkZMFnMiKt92itidN7K6nF3N7gQBEBM&_nc_zt=23&_nc_ht=scontent.fmnl4-4.fna&oh=03_Q7cD1wFEy7nBY17DkvZMalzgEt8LoUkNq5aoQADtutsIBaWWNA&oe=680DFFAF" <p/>
 
  <p align="center"> 
   $${\color{white} \space " \space i \space feel \space nothing. \space "}$$
