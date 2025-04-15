@@ -9,6 +9,6 @@ $${\color{white} \space " \space i \space feel \space everything. \space "}$$
   $${\color{white} \space " \space i \space feel \space nothing. \space "}$$
   
 <p align="center"> 
- <img src="https://cdn.discordapp.com/attachments/1013637206952382504/1355168029066924273/IMG_0602.png?ex=67ef3253&is=67ede0d3&hm=3dec39e488f13387a35dc6cbbf5adbd76b6d5a96b2966e8b60dfc79c13a8f3a7&format=webp&quality=lossless&width=1414&height=693" <p/>
+ <img src="https://media.discordapp.net/attachments/1013637206952382504/1355168029066924273/IMG_0602.png?ex=67ff0453&is=67fdb2d3&hm=83b66facecb52ceeeb478adba18080743c3953ed62fd21ec4d84a2007642cb7d&=&format=webp&quality=lossless&width=1414&height=693" <p/>
  
 
