@@ -3,7 +3,7 @@
   me and who
  
  <p align="center"> 
-<img src="https://i.pinimg.com/736x/e6/6b/2c/e66b2c3374c01a8e6df202042634fa99.jpg" <p/>
+<img src="https://i.pinimg.com/736x/63/f4/c7/63f4c77a51b027168df6698e225f1375.jpg" <p/>
 <p align="center"> im sua btw
 
  
