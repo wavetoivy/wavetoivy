@@ -4,7 +4,7 @@
  
  <p align="center"> 
 <img src="https://i.pinimg.com/736x/63/f4/c7/63f4c77a51b027168df6698e225f1375.jpg" <p/>
-<p align="center"> ps. SORRY IF I DONT RESPOND TO YOUR WHISPER/ATA MSG !!! :( I APPRECIATE EVERYTHING
+<p align="center"> ps. SORRY IF I DONT RESPOND TO YOUR WHISPER/ATA MSG !!! D: I APPRECIATE EVERYTHING
 
  
 
