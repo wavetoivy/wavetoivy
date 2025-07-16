@@ -1,4 +1,3 @@
-<git remote set-url=https://github.com/poisoned-ivy/REPOSITORY.git>
 <p align="center"> <img src=https://komarev.com/ghpvc/?username=wavetoivy&color=000000&style=flat-square&label=gooners>
 <p align="center"> 
   me and who ? ?
