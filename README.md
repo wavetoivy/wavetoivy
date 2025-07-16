@@ -1,10 +1,10 @@
-<p align="center"> <img src=https://komarev.com/ghpvc/?username=wavetoivy&color=8d8f91&style=flat-square&label=💿>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=wavetoivy&color=000000&style=flat-square&label=gooners>
 <p align="center"> 
-  hi click my links pls
+  me and who
  
  <p align="center"> 
-<img src="https://i.pinimg.com/736x/63/f4/c7/63f4c77a51b027168df6698e225f1375.jpg" <p/>
-<p align="center"> ps. SORRY IF I DONT RESPOND TO YOUR WHISPER/ATA MSG !!! D: I APPRECIATE EVERYTHING
+<img src="https://i.pinimg.com/736x/4e/9e/00/4e9e0098a4605cfa09183e5256ce40ce.jpg" width="380">
+
 
  
 
